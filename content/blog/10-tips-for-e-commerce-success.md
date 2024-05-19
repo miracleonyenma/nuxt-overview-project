@@ -1,4 +1,4 @@
-# 50 Tips for E-Commerce breakthrough
+# 10 Tips for E-Commerce breakthrough
 
 **Are you ready to skyrocket your e-commerce business? Here are ten essential tips to ensure your success.**
 
